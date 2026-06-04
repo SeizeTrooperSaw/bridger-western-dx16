@@ -1,4 +1,4 @@
-#  
+#  smart Scripts for ultimate mining tycoon offers the most advanced ultimate mining tycoon Script, with god mode and undetectable. Perfect for
 
 
 
